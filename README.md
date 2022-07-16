@@ -1,4 +1,5 @@
-![Forest Green White Lines Fall Autumn Season Facebook Cover (1)](https://user-images.githubusercontent.com/109334550/179362395-85dbf917-0832-4f07-8603-3b7e6b0c97bf.jpg)
+![Forest Green White Lines Fall Autumn Season Facebook Cover (1)](https://user-images.githubusercontent.com/109334550/179362534-8f7b1429-fd9a-4258-854f-9d321302cfcd.jpg)
+
 - 👋 Hi, I’m @Nathan5301
 - 👀 I’m interested in content writing.
 - 🌱 I’m currently learning SEO.
@@ -8,4 +9,4 @@
 Nathan5301/Nathan5301 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![Forest Green White Lines Fall Autumn Season Facebook Cover](https://user-images.githubusercontent.com/109334550/179362118-4aaebe42-eae5-4f2c-99a2-d8f78e065128.jpg)
+Since the beginning of this year I improved as a content writer. Lately I have been doing several projects. As an SEO specialist Identifying strategies to increase the number of visitors for your website is my main target. My function is essential to raise the company's standard, increasing a higher position within relevant search engines, creating more leads and making a profit.
