@@ -1,5 +1,3 @@
-![Forest Green White Lines Fall Autumn Season Facebook Cover (1)](https://user-images.githubusercontent.com/109334550/179362534-8f7b1429-fd9a-4258-854f-9d321302cfcd.jpg)
-
 
 
 - 👋 **Hi, I’m @Nathan5301**
